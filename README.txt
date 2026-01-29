@@ -1,4 +1,0 @@
-- 👋 Hi, I’m Pelengen
-- 👀 I’m interested in games, and music
-- 🌱 I’m currently learning in school
-- 💞️ I am ready to cooperate, provided that you know Russian 
